@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Mr Yogesh Neupane
+- 👀 I’m interested in Coding and Designning
+- 🌱 I’m currently learning, Mobile Application Development, a post graduate certificate programme in Georgian College, Barrie, ON, CA.
+- 📫 Email me: neupaneyogesh97@gmail.com
+- ⚡ Fun fact: I love clicking photos and can i have decent photography skills.
